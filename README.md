@@ -1,1 +1,1 @@
-The vsd code of Shrinathon 2025
+The vsd code of Srinathon 2025
